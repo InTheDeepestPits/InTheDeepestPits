@@ -1,6 +1,6 @@
-[17588583103286948586937813205192](https://github.com/user-attachments/assets/7fee7055-6464-44e7-bbfa-bcb1699999c6)
+![17588583103286948586937813205192](https://github.com/user-attachments/assets/7fee7055-6464-44e7-bbfa-bcb1699999c6)
 
-the sinner.  .  . 
+the sinner. 
 
 minor     ,     _07/08_
 aroace  , agendr   .    !  ! 
