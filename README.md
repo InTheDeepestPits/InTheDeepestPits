@@ -11,7 +11,7 @@ im a trans man and interbinary,,
 
 
 my main interests right now are ultrakill and minecraft args, mainly a ReGect and collinlock16
-I also like block tales and grace! hello! i am the #1 block tales emotions fan 🥹. 
+I also like block tales, ddlc, ihnmaims, pressure/doors, badthings and lifesteal smp hello! i am the #1 block tales emotions fan 🥹. 
 pls int if you like them too. I love them. my little freaks. /silly
 
 my only real dni s just weird people overall, im fine with proshippers / comshippers, just dont rub it on my face and u can int, darkshippers dni however. Id also rather not int if you're just gonna make.. crude comments about private parts.. im sensitive sure but that's overall disgusting to be talking to to a stranger through the screen
